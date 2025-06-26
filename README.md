@@ -1,1 +1,1 @@
-# Bitcoin Token Standards
+Online Assignment Plagiarism Checker with OCR
